@@ -1,0 +1,1 @@
+# warsztat-programisty-pj-2026-z-02-github-pages-kpierzga
